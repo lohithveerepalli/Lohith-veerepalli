@@ -1,3 +1,3 @@
-# krithikasuresh.github.io
+# LohithVeerepalli.github.io
 
 work in progress
